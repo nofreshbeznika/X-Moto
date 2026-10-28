@@ -229,4 +229,4 @@ X-Moto is available as a full free version. Enjoy all features and updates witho
 Don't miss out on the fun—download X-Moto today and dive into the thrilling world of motorbike racing!
 
 ---
-**Last updated:** 2026-10-28 07:37:14 UTC
+**Last updated:** 2026-10-28 14:35:58 UTC
